@@ -1,0 +1,3 @@
+# Batman
+
+Die Figur Batman wurde 1939 von dem Autor Bill Finger (1914–1974) und dem Zeichner Bob Kane (1915–1998) geschaffen. Beide wurden vorrangig durch die Romanfiguren Zorro und D'Artagnan (von Die drei Musketiere) sowie die Comicfigur The Shadow beeinflusst. The Bat Whispers (1930), ein Stummfilm von Roland West, und der messerscharfe Verstand Sherlock Holmes waren ebenso Vorbilder.[3] Finger veränderte vor dem ersten Erscheinen das ursprünglich steife Cape in ein wallendes und konzipierte Batman als zweite Identität von Bruce Wayne. Dessen Name geht auf den schottischen Freiheitskämpfer Robert the Bruce und den US-amerikanischen Nationalhelden Mad Anthony Wayne zurück.[4][5]
